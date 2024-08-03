@@ -24,3 +24,8 @@ Remember:
 
 
 ![image](https://github.com/user-attachments/assets/b9dab6d3-4361-42f5-a5b2-051d902baa46)
+
+
+
+![image](https://github.com/user-attachments/assets/93a37b62-abbb-459a-a2b0-cf2abd9f1ddc)
+
